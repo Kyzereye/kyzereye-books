@@ -1,0 +1,22 @@
+# Introduction
+
+People talk about the Law of Attraction as if it were modern.
+
+You have probably heard the basic ideas. You ask for what you want, believe you will receive it, and try to feel as if it is already yours. You watch what you say, try not to dwell on lack, practice gratitude, and hear that the real power is within you. Those ideas are everywhere now in books, seminars, and online teaching, so it is easy to assume the whole subject began in our lifetime.
+
+It did not. A hundred years ago, writers were already teaching much the same thing. Napoleon Hill wrote that thoughts become things, and that a clear desire held with faith helps bring results. Wallace D. Wattles wrote about thinking and acting in a certain way in order to receive what you want. Ralph Waldo Trine wrote about living in tune with an infinite source. William Walker Atkinson and other New Thought writers described thought, will, and imagination as creative forces. Later teachers such as Neville Goddard emphasized assumption and inner vision. The names and book titles change over time, but the core teaching stays familiar.
+
+Then you turn to the Bible and notice something similar. It teaches people to ask with the expectation of receiving, and to believe they have already received what they asked for. It links speech with life and death, action with harvest, and the condition of the heart with the course of a life. Again and again it treats the inner life as the starting place for what appears in the outer life.
+
+You do not need advanced training to notice the resemblance. The words are different. The Bible speaks of faith rather than vibration, prayer rather than asking the universe, the heart rather than frequency, and thanksgiving rather than a mood technique. Still, the pattern looks familiar. Desire, asking, believing, focusing, speaking, and waiting without constant self-contradiction all appear, along with the idea of living from an inner source instead of from helplessness.
+
+That resemblance is what this book is about. It does not claim that ancient writers used the phrase “Law of Attraction.” They did not. It claims that they taught the same basic pattern, and that the Bible, read carefully, can be used as a kind of handbook for it. This book follows that pattern so you can see it for yourself.
+
+You do not have to convert in order to read these pages. You do not have to become a Christian, adopt the Law of Attraction, or combine the two into a new belief system. This is not a call to join anything. It is a comparison between a modern way of describing how inner life shapes outer life and an ancient set of writings that teach a similar sequence in their own language. Bring whatever you already believe about God, the universe, or neither, and keep your own conclusions. The subject of this book is the pattern itself: how desire, belief, speech, attention, and inner state are said to relate to what shows up in life.
+
+Using the same words does not mean teaching the same thing. A verse that only sounds like manifestation may not belong in the argument unless the passage around it still supports the claim. There is no need for taking things out of context.  Where the parallel is strong, this book will say so. Where the context of Scripture will not support a popular slogan, this book will not force the connection.
+
+Readers may disagree about what this pattern ultimately is, and that is fine. Some will see a law built into reality. Others will see a personal God at work through prayer, faith, and promise. You can hold either view, both, or neither, and still use this book. You do not have to settle that question before you start. We are following the pattern either way.
+
+The book moves in a simple order. Chapter 1 explains the Law of Attraction on its own terms, as a set of related principles, before any discussion of the Bible. That gives us a shared vocabulary. The next chapters take those principles one at a time and set them beside Scripture. The point is not to collect impressive quotations. It is to follow each idea through the text: what the passage teaches, how it works, where a story shows it, what gets in the way, and where the Law of Attraction and the Bible begin to differ. Later there is a chapter on the real differences, including questions of source, limits, ethics, suffering, and community. The final chapter turns the comparison into practice.
+
