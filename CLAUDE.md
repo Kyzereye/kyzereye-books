@@ -1,6 +1,6 @@
 # kyzereye-books: instructions for Claude
 
-All of John's books, one folder per book. See `README.md` for the list and status. Priorities come from `../myLife/priorities.md`. Only the finish-slot book gets active work unless John says otherwise.
+All of John's books, one folder per book. See `README.md` for the list and status. Priorities come from `../priorities.md` (this repo sits inside the myLife folder). Only the finish-slot book gets active work unless John says otherwise.
 
 ## Per-book notes
 

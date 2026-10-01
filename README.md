@@ -1,6 +1,6 @@
 # Kyzereye Books
 
-Every book I'm writing, one folder per book. Which book is active, and in what order, is decided in `myLife/priorities.md`, not here.
+Every book I'm writing, one folder per book. Which book is active, and in what order, is decided in `../priorities.md` (myLife; this repo sits inside the myLife folder), not here.
 
 | Folder | Book | Status | Priority (myLife) |
 |---|---|---|---|
